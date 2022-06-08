@@ -1,8 +1,8 @@
-# Final
+# Portafolio 
 
 <strong> ¿Para qué es la propuesta? </strong>
 
-Visibilizar mi trabajo como diseñadora.
+Visibilizar y compartir mi trabajo como estudiante de diseño.
 
 <strong> ¿Para quienes es esta propuesta? </strong>
 
